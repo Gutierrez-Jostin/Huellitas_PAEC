@@ -1,1 +1,1 @@
-creo que ya se arreglo
+No se arreglaa
